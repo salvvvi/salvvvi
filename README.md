@@ -30,7 +30,7 @@
 
 ## 🌍 Let's Connect  
 - 💼 [LinkedIn](www.linkedin.com/in/salvin-s-a81500314)  
-- 📧 Email: salvinsalvin503@example.com  
+- 📧 Email: salvinsalvin503@gmail.com  
 
 ✨ *"Data is the new oil, but insights are the new gold."*  
 
